@@ -1,2 +1,3 @@
 # web3_learning_together
-web3_learning_together
+web3找一起学习的队友，有兴趣一起发我邮箱1481758885@qq.com
+希望你可以学习热情高一点，主动性强一点，最近开始有学习计划的（2025/09/26）
